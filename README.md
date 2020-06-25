@@ -1,3 +1,5 @@
 # hello-worlds
 Clever developer 
 paresh
+EVERYTHING WILL BE FINE
+NOBODY IS REAL WELL WISHER EXCEPT PARENTS
